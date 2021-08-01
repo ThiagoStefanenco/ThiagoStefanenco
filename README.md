@@ -1,0 +1,5 @@
+- 👋 Hi, I’m thiago stefanenco de sousa
+- 👀 I’m interested in  aprender
+- 🌱 I’m currently learning linguages para  smartphone e web
+- 💞️ I’m looking to collaborate onprojetos voltados a evolução tecnologica
+- 📫 How to reach me  Whatsapp +5511984898445
